@@ -11,5 +11,5 @@
 • **DIPLOMA Istituto Tecnico IIS G.Peano** [Informatica & Telecomunicazioni]. 📚
 
 
-• *Appassionato di tecnologia, calcio e musica. 💻⚽🎧*
+• **Appassionato di tecnologia, calcio e musica. 💻⚽🎧**
 
