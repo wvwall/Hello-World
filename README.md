@@ -1,7 +1,7 @@
 # Hello-World
 **Ho 25 anni mi chiamo Walter e sto alimentando sempre di più le mie passioni per favorire un miglioramento continuo, nella vita e nel codice.**
 
-                                     ~ https://www.linkedin.com/in/walter-velardo-980893192/ ~
+                                     ~ https://www.linkedin.com/in/walter-velardo/ ~
 
 
 • **SPORT OPERATOR** Deltatre, azienda informatica di Torino [Data Gathering]. 🖲️
